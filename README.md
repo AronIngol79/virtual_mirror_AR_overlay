@@ -18,6 +18,6 @@ https://media.giphy.com/media/39AYArvlL9CHYC28HS/source.mp4
 
 ![](https://media.giphy.com/media/39AYArvlL9CHYC28HS/source.gif)
 
-![](![](https://media.giphy.com/media/39AYArvlL9CHYC28HS/source.gif)
+![](https://media.giphy.com/media/39AYArvlL9CHYC28HS/source.gif)
 
 
